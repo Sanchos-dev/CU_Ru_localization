@@ -16,7 +16,7 @@
 
 **NO AI USED IN THIS TRANSLATION**
 
-Translation made by Sanchos & Jackaroopod
+Translation made by Sanchos(sanchos.su) & jackaroopod(tg: @jackaroopod)
 
 
 
